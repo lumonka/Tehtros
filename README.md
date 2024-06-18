@@ -10,5 +10,7 @@
 ![image](https://github.com/lumonka/Tehtros/assets/93397867/b2e74242-ddc7-40c5-9191-7480d9a2e6be)
 ![image](https://github.com/lumonka/Tehtros/assets/93397867/a4c19f88-8dae-4eaa-952e-f6b9c9b18cd8)
 ![image](https://github.com/lumonka/Tehtros/assets/93397867/bd5ad19f-0c3c-420e-bb80-97d011c85073)
+![image](https://github.com/lumonka/Tehtros/assets/93397867/b1eda51d-1ac7-43fc-aa6b-e81b2078b34b)
+![image](https://github.com/lumonka/Tehtros/assets/93397867/69c310ba-088f-4e21-b365-321e89b2c5f3)
 
 
